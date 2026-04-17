@@ -1,4 +1,4 @@
-
+Experience roblox adopt me like never before with secret Script for roblox adopt me - instant win and auto-sell, the #1 Script. Includes instant win
 
 
 ---
